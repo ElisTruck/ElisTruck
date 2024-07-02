@@ -1,3 +1,10 @@
+![image](https://github.com/ElisTruck/ElisTruck/assets/168608330/34fda3cb-1a99-4093-adaa-95425c8e74b0)
+![image](https://github.com/ElisTruck/ElisTruck/assets/168608330/0cd76835-1e1c-4ce4-b9bb-0cb21dc5e9a6)
+
+![image](https://github.com/ElisTruck/ElisTruck/assets/168608330/19eb3fa9-5942-4b8a-9677-18398b899909)
+
+![image](https://github.com/ElisTruck/ElisTruck/assets/168608330/346fe529-aa72-48f0-81dc-b51c017cdf2c)
+![image](https://github.com/ElisTruck/ElisTruck/assets/168608330/32b2f76b-933a-424e-868c-71831639b880)
 
 ![image](https://github.com/ElisTruck/ElisTruck/assets/168608330/5e45f149-8698-459d-b97d-97de601fdcd6)
 
@@ -16,3 +23,6 @@
 
 ![image](https://github.com/ElisTruck/ElisTruck/assets/168608330/24754880-0caf-4f07-b5a6-8ea55d8752c6)
 ![image](https://github.com/ElisTruck/ElisTruck/assets/168608330/9db1333b-6cf9-4184-94b7-4e5ba73782c1)
+![image](https://github.com/ElisTruck/ElisTruck/assets/168608330/5b216aad-8ee1-4c8c-8f84-d772a8ba5e09)
+![image](https://github.com/ElisTruck/ElisTruck/assets/168608330/fe7068cd-5145-4657-a221-58e351424cf0)
+![image](https://github.com/ElisTruck/ElisTruck/assets/168608330/a8bc47e4-ab92-4158-8fd9-f51126e9c787)
