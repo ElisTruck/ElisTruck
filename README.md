@@ -1,8 +1,5 @@
-![image](https://github.com/ElisTruck/ElisTruck/assets/168608330/34fda3cb-1a99-4093-adaa-95425c8e74b0)
-![image](https://github.com/ElisTruck/ElisTruck/assets/168608330/0cd76835-1e1c-4ce4-b9bb-0cb21dc5e9a6)
-
-![image](https://github.com/ElisTruck/ElisTruck/assets/168608330/19eb3fa9-5942-4b8a-9677-18398b899909)
 my hot wives
+
 ![image](https://github.com/ElisTruck/ElisTruck/assets/168608330/346fe529-aa72-48f0-81dc-b51c017cdf2c)
 ![image](https://github.com/ElisTruck/ElisTruck/assets/168608330/32b2f76b-933a-424e-868c-71831639b880)
 
