@@ -12,6 +12,11 @@ my faves...smirk..grin..cackles..
 ![image](https://github.com/user-attachments/assets/611e6833-210f-4320-914d-b1291fb2f4ba)
 ![image](https://github.com/user-attachments/assets/f7fd18a9-6656-4a4e-bc2c-90bf524df707)
 ![image](https://github.com/user-attachments/assets/110a583f-aa5f-49a2-a52e-a8d36caf129d)
+![image](https://github.com/user-attachments/assets/09653fb6-1709-4e0f-b111-d77ce38bfc18)
+![image](https://github.com/user-attachments/assets/27d6a5ac-9eef-4f93-8688-0744d0a4e540)
+![image](https://github.com/user-attachments/assets/615088e9-67d4-492f-a8b5-a01b3acadd9a)
+![image](https://github.com/user-attachments/assets/45470062-7ffe-408e-b96d-a430809fc5e4)
+![image](https://github.com/user-attachments/assets/a6f25310-c1ef-4cd3-b8a2-da8c259e7d97)
 
 ![image](https://github.com/user-attachments/assets/7bc52373-8d6a-41ae-9ce8-41de5023daaf)
 ![image](https://github.com/user-attachments/assets/ff8d5417-0e05-45e5-9b6d-f466c6b89569)
