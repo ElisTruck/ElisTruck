@@ -1,7 +1,18 @@
-my hot wives.......you might get flashed if you scroll
+my faves...smirk..grin..cackles..
 
 ![image](https://github.com/ElisTruck/ElisTruck/assets/168608330/346fe529-aa72-48f0-81dc-b51c017cdf2c)
 ![image](https://github.com/ElisTruck/ElisTruck/assets/168608330/32b2f76b-933a-424e-868c-71831639b880)
+![image](https://github.com/user-attachments/assets/de1036b6-bc1b-49d6-87ce-2729e606879d)
+![image](https://github.com/user-attachments/assets/1072ad0b-458c-4f9f-b6f6-2a273e5b07dc)
+![image](https://github.com/user-attachments/assets/d39aa9de-6578-4dcf-8fd6-29bf98f451ee)
+![image](https://github.com/user-attachments/assets/3c0b4525-5566-4ada-b38b-e1463697ee2d)
+![image](https://github.com/user-attachments/assets/253156d4-4ddc-47d0-b80d-966af83c85f0)
+![image](https://github.com/user-attachments/assets/c2f99f76-769e-4d40-91ea-6dcd76cf6297)
+![image](https://github.com/user-attachments/assets/a8543510-ebca-498e-a9d0-1bbafa58b0c0)
+![image](https://github.com/user-attachments/assets/611e6833-210f-4320-914d-b1291fb2f4ba)
+![image](https://github.com/user-attachments/assets/f7fd18a9-6656-4a4e-bc2c-90bf524df707)
+![image](https://github.com/user-attachments/assets/110a583f-aa5f-49a2-a52e-a8d36caf129d)
+
 ![image](https://github.com/user-attachments/assets/7bc52373-8d6a-41ae-9ce8-41de5023daaf)
 ![image](https://github.com/user-attachments/assets/ff8d5417-0e05-45e5-9b6d-f466c6b89569)
 ![image](https://github.com/user-attachments/assets/06296245-66e6-4304-bad2-09378f44531a)
