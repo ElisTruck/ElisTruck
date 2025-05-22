@@ -40,6 +40,8 @@ my faves...smirk..grin..cackles..
 ![image](https://github.com/user-attachments/assets/def52aa6-f512-4523-8c0a-c12d77b875b1)
 ![image](https://github.com/user-attachments/assets/6750e4fc-fa14-4de0-bce5-0ed0d4cf1350)
 ![image](https://github.com/user-attachments/assets/bfd6fc80-3995-4d50-b60f-89b471838d0d)
+drawing credits to styrix's friend<333
+![image](https://github.com/user-attachments/assets/d8aa6759-0af1-4e33-9cbe-088196f0419c)
 
 ![image](https://github.com/ElisTruck/ElisTruck/assets/168608330/5e45f149-8698-459d-b97d-97de601fdcd6)
 ![image](https://github.com/user-attachments/assets/494ea6bd-1bac-456f-9347-8c38da062094)
