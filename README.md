@@ -43,6 +43,18 @@ my faves...smirk..grin..cackles..
 drawing credits to styrix's friend<333
 ![image](https://github.com/user-attachments/assets/d8aa6759-0af1-4e33-9cbe-088196f0419c)
 
+![image](https://github.com/user-attachments/assets/ee38b33d-73ec-449e-a0f1-aa31371e1131)
+
+art credits to rickys friend<3333
+![image](https://github.com/user-attachments/assets/3b7be9a1-e37f-4499-95fe-44f112bf794a)
+
+![image](https://github.com/user-attachments/assets/4d3497fe-7342-4ff5-80ef-d64fdddfa1b4)
+![image](https://github.com/user-attachments/assets/1829b263-4e0c-4d6a-b34d-6a6d5216cb17)
+![image](https://github.com/user-attachments/assets/5f6d2d09-7bfd-4c8a-bb40-1b10fb4ed7bc)
+![image](https://github.com/user-attachments/assets/033578cf-1939-4e44-a13d-25bac2406001)
+![image](https://github.com/user-attachments/assets/63d7192a-6cd1-42d2-ab00-c512f2e8e4d1)
+![image](https://github.com/user-attachments/assets/90f9b542-fffe-4aa5-af19-27821575a1ec)
+
 ![image](https://github.com/ElisTruck/ElisTruck/assets/168608330/5e45f149-8698-459d-b97d-97de601fdcd6)
 ![image](https://github.com/user-attachments/assets/494ea6bd-1bac-456f-9347-8c38da062094)
 ![image](https://github.com/user-attachments/assets/bf2377f5-8ea9-4210-96a6-ae6b00056fc6)
