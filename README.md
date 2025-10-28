@@ -5,6 +5,11 @@ my faves...smirk..grin..cackles..
 ![image](https://github.com/user-attachments/assets/de1036b6-bc1b-49d6-87ce-2729e606879d)
 ![image](https://github.com/user-attachments/assets/1072ad0b-458c-4f9f-b6f6-2a273e5b07dc)
 ![image](https://github.com/user-attachments/assets/d39aa9de-6578-4dcf-8fd6-29bf98f451ee)
+<img width="736" height="414" alt="image" src="https://github.com/user-attachments/assets/9855b4ba-9465-46e6-ad9e-6db26a0ea992" />
+<img width="540" height="640" alt="image" src="https://github.com/user-attachments/assets/271907de-88a6-4f83-a22a-57d6dcb12fe8" />
+<img width="735" height="1026" alt="image" src="https://github.com/user-attachments/assets/ad23017e-596c-44c6-8cf9-b3adacd8f68a" />
+<img width="1200" height="1304" alt="image" src="https://github.com/user-attachments/assets/36963e13-895e-47d3-9764-6a2533cdee76" />
+
 ![image](https://github.com/user-attachments/assets/3c0b4525-5566-4ada-b38b-e1463697ee2d)
 ![image](https://github.com/user-attachments/assets/253156d4-4ddc-47d0-b80d-966af83c85f0)
 ![image](https://github.com/user-attachments/assets/c2f99f76-769e-4d40-91ea-6dcd76cf6297)
@@ -17,6 +22,7 @@ my faves...smirk..grin..cackles..
 ![image](https://github.com/user-attachments/assets/615088e9-67d4-492f-a8b5-a01b3acadd9a)
 ![image](https://github.com/user-attachments/assets/45470062-7ffe-408e-b96d-a430809fc5e4)
 ![image](https://github.com/user-attachments/assets/a6f25310-c1ef-4cd3-b8a2-da8c259e7d97)
+<img width="1200" height="675" alt="image" src="https://github.com/user-attachments/assets/13176c2e-529b-4ea1-8e94-48c120d60edf" />
 
 ![image](https://github.com/user-attachments/assets/7bc52373-8d6a-41ae-9ce8-41de5023daaf)
 ![image](https://github.com/user-attachments/assets/ff8d5417-0e05-45e5-9b6d-f466c6b89569)
