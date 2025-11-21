@@ -1,4 +1,7 @@
 my faves...smirk..grin..cackles..
+read my fanfic trust..
+
+three way kiss by EliTrucks - The Walking Dead (TV) https://archiveofourown.org/works/74455431 via @ao3org 
 
 ![image](https://github.com/ElisTruck/ElisTruck/assets/168608330/346fe529-aa72-48f0-81dc-b51c017cdf2c)
 ![image](https://github.com/ElisTruck/ElisTruck/assets/168608330/32b2f76b-933a-424e-868c-71831639b880)
